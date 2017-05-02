@@ -1,2 +1,0 @@
-# DragonRaidz-Files
-DragonRaidz Files
